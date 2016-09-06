@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Day 1"
+title:  "Day 1 - Ottumwa to Denver"
 date:   2016-06-24 22:00:00 -0500
 categories: Amtrak vacation
 ---
