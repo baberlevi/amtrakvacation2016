@@ -1,0 +1,7 @@
+---
+layout: post
+title:  "Day 7"
+date:   2016-06-30 22:00:00 -0500
+categories: Amtrak vacation
+---
+Slept in until around 8. Loaded up and started driving. Traffic a little heavy, but not bad. Much worse on the other side coming into the bay area. Drove through lots of rolling hills with golden grass, then orchards. Went up steep mountain road says to turn off air conditioning. Drove past cabin into Yosemite. Used Wesley's park pass again. Stopped at gas station in park and got a few snacks (reasonably priced). Drove Tioga road to Tenaya Lake. Smells so good (cedar, grass, smoke). Trees are really big (couple types of pine and cedar). Stopped a few times along the way for overlooks. Were going to stop at Tuolumne Grove, but no room in the parking lot, decided to come back later. Best overlook at Olmsted Point, short hike down to rocks. Tenaya lake really calm and clear. Walked around in the water, few people were swimming. Crazy drivers, bear signs. Drove back to Tuolumne Grove, (got there little after 5) and walked to the Sequoia trees down a blacktop path (old Flat Oak road). Trees are huge! Bigger in person than I expected. Reminded me of Endor? Hike back up the hill was steep and moderately strenuous, but everyone made it without much complaining, and faster than the estimate posted. Down and back in 1.5 hours. Drove to cabin and checked in. Family cabin 2. Two bunk needs, futon, and queen in a bedroom. Full kitchen, well stocked with dishes, pans, utensils. Ate dinner at restaurant next door, really reasonably priced. Big cup of beer.
